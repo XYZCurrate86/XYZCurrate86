@@ -1,5 +1,5 @@
 <b>Who TF are u??</b>
-- My name Is Ahmad Chaidar Isat A.k.a XYZCurrate86
+- my Nickname is XYZCurrate
 - Based at 112° In Indonesia (MLG,🇮🇩)
 - 3 years Learning Software Engineer Bachelor On Vocational School
   And Currently Pursuing Engineering informatics Bachelor
